@@ -1,1 +1,1 @@
-# Eduart-Narwhal-3D
+# Eduart-ichthyosaurus-3D
